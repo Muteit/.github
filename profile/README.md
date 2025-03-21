@@ -1,4 +1,4 @@
-# MUTEIT by Unicorn Witnesses Olga Nayda: Your shy bladder help in the APP! Curate Paruresis together with around 200 million people globally and 21 million in USA 🇺🇸
+# MUTEIT by Unicorn Witnesses lead w Olga Nayda: Your shy bladder help in the APP! Curate Paruresis together with around 200 million people globally and 21 million in USA 🇺🇸
 
  [![Watch the Video](https://img.youtube.com/vi/xIAva8C3CPA/maxresdefault.jpg)](https://www.youtube.com/watch?v=xIAva8C3CPA)
 
